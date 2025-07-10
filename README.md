@@ -7,4 +7,4 @@
 
 平台每日更新刺激内容，严选多种题材视频资源，带来不同类型用户的极致视觉享受。所有视频均支持高速播放，体验感受佳。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/met20250710/met2 ）</span>
